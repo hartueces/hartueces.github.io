@@ -13,7 +13,7 @@ Adventure Time is an American fantasy animated television series created by Pend
 
  The pilot first aired in 2007 on Nicktoons Network, where it was later re-aired on the incubator series Random! Cartoons. The pilot was eventually uploaded onto the internet and became a cult hit on YouTube. After Nickelodeon declined to turn the short into a full-fledged show, Cartoon Network purchased the rights, and Adventure Time launched as a series on April 5, 2010. The series concluded its eight-year and ten-season run on September 3, 2018.[9] The series was followed by two limited-run spinoffs: Adventure Time: Distant Lands (2020–21) and Adventure Time: Fionna and Cake (2023).
 
- ## Here are some of the characters in the show
+## Here are some of the characters in the show
 
 • **Finn The Human**
 
