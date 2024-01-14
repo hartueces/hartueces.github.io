@@ -43,5 +43,6 @@ Adventure Time is an American fantasy animated television series created by Pend
 
  ![alt text](https://i.pinimg.com/564x/c6/8a/bf/c68abf7493d9ebb92f7f487d156dab3c.jpg)
 
-  ![byebye](![image](https://github.com/hartueces/hartueces.github.io/assets/151605719/b9fb3b73-7690-4268-b35f-650c1533d981)
+  ![byebye](![image](https://github.com/hartueces/hartueces.github.io/assets/151605719/5d4cf288-3823-49e6-9785-5d400aedda44)
+)
 
